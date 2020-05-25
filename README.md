@@ -8,7 +8,7 @@
 
  4. Instagram - https://www.instagram.com/placementmaster/
  
- 5.support@placementmaster.in
+ 5. support@placementmaster.in
  
- 6.Website - placementmaster.in
+ 6. Website - https://placementmaster.in
  
